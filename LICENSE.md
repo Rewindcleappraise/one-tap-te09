@@ -1,4 +1,4 @@
-
+Experience one tap like never before with one tap stealth Scripts, the #1 Script. Includes auto-sell and no cooldown for unbeatable performance.
 
 
 
